@@ -1,4 +1,4 @@
-IQ LIVE PLUS PROJECT
+**IQ LIVE PLUS PROJECT**
 
 Introduction
 
